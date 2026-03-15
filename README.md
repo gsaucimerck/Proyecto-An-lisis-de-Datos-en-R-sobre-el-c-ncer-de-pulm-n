@@ -1,1 +1,1 @@
-Para poder visualizar es probable que requiera ser descargado, muchas gracias por su tiempo.
+Para poder visualizar el archivo HTML es probable que requiera ser descargado, muchas gracias por su tiempo.
